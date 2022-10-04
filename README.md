@@ -12,4 +12,15 @@ random clothes
 sleepy eyes  
 tired body  
   
-This poem is about looking messy and feeling tired.
+*This poem is about looking messy and feeling tired.*
+
+### Safe and Happy
+With them,  
+everything feels okay  
+my friends are always there  
+and they know  
+the buttons to push to make me laugh  
+and the words to say to make me feel okay  
+I hope they never leave my side  
+
+*My friends are very important people to me, they have helped me get through tough times and I am very grateful for them.*
