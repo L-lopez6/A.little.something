@@ -51,7 +51,7 @@ and sleep peacefully
 
 *I watch ASMR videos when I cannot sleep, here is one of my favorite ASMR videos:* [Luna Bloom's ASMR!](https://www.youtube.com/watch?v=zScMsTqgt6I)
 
-### Picnic date
+### Picnic date (10/3/22)
 pink purple flowers  
 a blue sky  
 and a shining sun  
@@ -60,3 +60,7 @@ nothing else matters
 and I forget my worries  
 
 *My boyfriend got me flowers recently, and they were very pretty.*
+
+## Ending notes and comments
+Although I do have many more poems, these are a few of my favorite ones. A little more about me is that I am 16 years old, I love reading and baking, and I really like playing volleyball. Here's a face reveal!  
+![WIN_20220615_23_25_43_Pro](https://user-images.githubusercontent.com/114507497/193733314-ae031ba1-6eb7-4d9c-98a4-05f75738943b.jpg)
