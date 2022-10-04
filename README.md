@@ -23,7 +23,7 @@ yummy
 you always know  
 all the right things to do 
 
-*My boyfriend gave me a yummy bread from the bakery 85°C and I very much enjoyed it*
+*My boyfriend gave me a yummy bread from the bakery 85°C and I very much enjoyed it.*
 
 ### Safe and Happy (10/3/22)
 With them,  
@@ -36,3 +36,5 @@ I hope they never leave my side
 
 *My friends are very important people to me, they have helped me get through tough times and I am very grateful for them.*
 
+### ASMR
+![WIN_20220519_20_48_54_Pro](https://user-images.githubusercontent.com/114507497/193727757-e484e82b-0ed2-47ee-bc6a-2135796acf1c.jpg)
