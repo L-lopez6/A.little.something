@@ -5,3 +5,17 @@ I began writing in the year 2020. I write poems about anything going on in my li
 
 # Simple Poems
 ## My significant other, friends, and little bits of my life
+Comfy bed/ 
+Warm Blankets/
+Sky lightens/
+Birds chirping/
+Girls talking/
+Footsteps pounding/
+We panic/
+We “sleep”/
+Get caught/
+Aunt scolds/
+“So disappointed”/
+We sleep/
+Lesson learned/
+...not really
