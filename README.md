@@ -3,6 +3,10 @@ My name is L, and I call myself a poet. Poetry is an outlet for me, and a huge w
 
 I began writing in the year 2020. I write poems about anything going on in my life. Some of them are very personal, and others are not so important. I never know where to store my poems, so in a way, this is my little portfolio about just a few of my poems, a little drop of my thoughts. And of course, all of these poems are my own, they are original.
 
+This picture, with the flowers on a poetry book, gives me the aesthetic that I think of when I think of poetry.  
+![5906333875_04f299bb20_w](https://user-images.githubusercontent.com/114507497/193731872-cc8883c1-5729-4ee7-8d68-1afa9ccbefa6.jpg)  
+"My favourite poetry book" by Nick Kenrick.. is licensed under CC BY-NC-SA 2.0. To view a copy of this license, visit https://creativecommons.org/licenses/by-nc-sa/2.0/?ref=openverse.
+
 # Simple poems
 ## About my significant other, friends, and bits of my life
 ### Look (9/2/22)
@@ -36,7 +40,7 @@ I hope they never leave my side
 
 *My friends are very important people to me, they have helped me get through tough times and I am very grateful for them.*
 
-### ASMR
+### ASMR (10/3/22)
 nail tapping  
 lowest brightest setting  
 it's almost 12 am  
@@ -46,3 +50,13 @@ as I drift off,
 and sleep peacefully  
 
 *I watch ASMR videos when I cannot sleep, here is one of my favorite ASMR videos:* [Luna Bloom's ASMR!](https://www.youtube.com/watch?v=zScMsTqgt6I)
+
+## Picnic date
+pink purple flowers  
+a blue sky  
+and a shining sun  
+when it's just the two of us  
+nothing else matters  
+and I forget my worries  
+
+*My boyfriend got me flowers recently, and they were very pretty.*
