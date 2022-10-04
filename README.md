@@ -37,4 +37,13 @@ I hope they never leave my side
 *My friends are very important people to me, they have helped me get through tough times and I am very grateful for them.*
 
 ### ASMR
-![WIN_20220519_20_48_54_Pro](https://user-images.githubusercontent.com/114507497/193727757-e484e82b-0ed2-47ee-bc6a-2135796acf1c.jpg)
+nail tapping  
+lowest brightest setting  
+it's almost 12 am  
+drowsy eyes  
+whispering in my ear  
+as I drift off,  
+and sleep peacefully  
+
+*I watch ASMR videos when I cannot sleep, here is one of my favorite ASMR videos:*  
+(https://www.youtube.com/watch?v=zScMsTqgt6I)
